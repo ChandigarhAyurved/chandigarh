@@ -1,0 +1,2 @@
+# chandigarh
+Find Fatty liver home remedies, causes, Symptoms, Treatment from CAC. People who have fatty liver problems need to take special care about their diet. Because people with fatty liver often have stomach and digestive problems. These include problems such as lack of stool, gas in the stomach, persistent acidity. Learn here how to deal with the problem of fatty liver… https://www.chandigarhayurvedcentre.com/blog/cure-fatty-liver-naturally/
